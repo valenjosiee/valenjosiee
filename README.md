@@ -1,4 +1,4 @@
-## Hi there 👋
+## Not a Roleplayer | Cuddles OK if u ask first | StaticMoth 4 life RadioStatic goes 2 Jupiter 2 get Stupider
 
 <!--
 **valenjosiee/valenjosiee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
